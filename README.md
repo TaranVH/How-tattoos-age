@@ -1,7 +1,7 @@
 # How Tattoos age
  How tattoos age. lol
 
-So, long story short, I wanted a tattoo, and there are so many beautiful, intricate designs online, but the more research I did, the more I realized those designs probably won't look goof in just a few years.
+So, long story short, I wanted a tattoo, and there are so many beautiful, intricate designs online, but the more research I did, the more I realized those designs probably won't look good in just a few years.
 Skin is alive, and tatoos will blur and fade over time. I also learned that brighter colors fade faster. But exactly how small is too small a line, and exactly how bright a color is too bright? There wasn't much to go on online. Nobody is posting their beautiful tatooo after 10 years of fading and blurring. That's why I designed and got this tattoo - to see how it will fade and blur over time.
 
 When designing it, I called around to a few shops, asking what the smallest possible line they can draw is. Long story short, the answer is about 0.35mm, or 350μm (micrometers.)
